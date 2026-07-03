@@ -1,4 +1,4 @@
-#  
+#  stealth minecraft Script offers the most advanced minecraft Script, with no clip and aimbot. Perfect for dominating any match.
 
 
 
